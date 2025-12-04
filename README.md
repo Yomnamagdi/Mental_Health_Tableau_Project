@@ -37,3 +37,6 @@ This can lead to “presenteeism,” where people show up to work but can’t pe
  🎯 Goal:
 To raise awareness and give organizations a clearer picture of where mental health support is falling short—and how they can start improving it.
 
+<img width="1885" height="1015" alt="Screenshot 2025-12-04 201953" src="https://github.com/user-attachments/assets/9d27926f-7e09-48fa-bbee-00524e286323" />
+
+
